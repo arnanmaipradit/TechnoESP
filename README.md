@@ -19,6 +19,7 @@
 - **7 days:** 180 THB
 - **15 days:** 350 THB
 - **30 days:** 600 THB
+- ** INVITE your friend for 1 extra day **
 
 ## Contact
 

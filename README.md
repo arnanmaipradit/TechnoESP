@@ -4,7 +4,7 @@
 
 **Techno CS2GO ESP External** is a state-of-the-art external cheat tool for CS2GO that provides an unparalleled advantage. With its 100% undetectable features, you can play with confidence, knowing you're always one step ahead.
 
-![CS2GO ESP External Screenshot](path-to-your-image-file.png)
+![CS2GO ESP External Screenshot](e5626c15-4084-40b4-b019-d812eb66f769.png)
 
 ## Features
 

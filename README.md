@@ -24,8 +24,7 @@
 
 To get your hands on this powerful tool or to learn more, contact us on Discord:
 
-- Discord ID: [255240221640228864](https://discordapp.com/users/255240221640228864)
-- Discord Tag: M.oakky#6259
+- Discord Server : https://discord.gg/cb5CsFVpgF
 
 Add me for a 1-day trial!
 
